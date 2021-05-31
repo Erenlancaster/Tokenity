@@ -1,3 +1,3 @@
 # Tokenity
 Tokenity
-Coming soon 
+Coming soon 🤠
